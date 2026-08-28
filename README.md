@@ -60,6 +60,8 @@
 
 ### Roy Ayers
 * Searching [link](https://www.youtube.com/watch?v=vc48ITjETAk)
+* Everybody loves the sunshine [link](https://www.youtube.com/watch?v=SSBWiFGzsyU)
+* Liquid love [link](https://www.youtube.com/watch?v=TPS4LOkss1Y)
 
 ### Gil Scott-Heron
 * Lady day john coltrane [link](www.youtube.com/watch?v=ZkPVdxZstyk)
@@ -79,8 +81,14 @@
 * Were a winner [link](https://www.youtube.com/watch?v=0X7vyuWhzDA)
 * Youre so good to me [link](www.youtube.com/watch?v=ZkPVdxZstyk)
 
+### Dangelo
+* Fell like making love [link](https://www.youtube.com/watch?v=SMuMMhfHaNw)
+* Spanish joint [link](https://www.youtube.com/watch?v=clXS_1NJC_Q)
+* One mo gin [link](https://www.youtube.com/watch?v=EQq-KwgolxE)
+* Betray my heart [link](https://www.youtube.com/watch?v=rejA6QRtrAI)
+
 ### Dyke and the Blazers
-* Let A Woman Be A Woman [link]()
+* Let A Woman Be A Woman [link](https://www.youtube.com/watch?v=Xjx2zb3nZBg)
 * Stuff [link](https://www.youtube.com/watch?v=Ow5OBldDL7c)
 
 ### Poets of Rhythm
@@ -157,3 +165,6 @@
 
 ### Pastor TL Barrett
 * Just like a ship [link](https://www.youtube.com/watch?v=wh-oge3eaUg)
+
+### Bobby Womack
+* Across 110th street [link](https://youtu.be/ce_DFjJMG04)
